@@ -1,0 +1,1 @@
+Hello this is my first "python thing" it is pretty bad i know lmao um other stuff blah blah not sure
